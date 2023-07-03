@@ -1,1 +1,1 @@
-# Projet de recette
+# Projet de recette eco-responsable
